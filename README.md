@@ -1,1 +1,1 @@
-Daybreak3r is a ✨ special ✨ kind of retard.
+Follow me for more absolutely atrocious code!
